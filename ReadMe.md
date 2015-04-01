@@ -10,3 +10,7 @@ Within you is a stillness and a sanctuary to which you can retreat at any time a
 The only disability in life is a bad attitude.-By- Matthew Jeffers
 
 The meaning of life is to find your gift. The purpose of life is to give it away.-By- Pablo Picasso
+
+Do a little more of what you want to do every day, until your idea becomes what's real.
+
+Great things are done by a series of small things brought together. -By- Vincent Van Gogh
