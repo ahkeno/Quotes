@@ -18,3 +18,7 @@ Great things are done by a series of small things brought together. -By- Vincent
 What seems like an easier path is really much harder in the end and most important,it wont take you where you want to go "escalator world"
 
 Making time for exercise may reduce work time.However, the time I do spend working is now more productive and enjoyable <a href="https://www.goodreads.com/book/show/17396004-engineer-your-own-success">Engineer Your Own Success</a>
+
+Your ability to focus will directly impact how productive you are in every sector of your work and life  <a href="https://www.goodreads.com/book/show/17396004-engineer-your-own-success">Engineer Your Own Success</a>
+
+when you are a minority,good is not enough.never let anyone limit your version of what you can accomplish! <a href="https://www.goodreads.com/book/show/2967518-good-is-not-enough">Good is not enough-Keith R Wyche </a>
