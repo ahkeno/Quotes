@@ -100,4 +100,6 @@ I have no special talent. I am only passionately curious. - Albert Einstein
 
 "Don't blame others as an excuse for your not working hard enough."
 
+"To begin is easy ,to persist is art" - German Proverbs
+
 
