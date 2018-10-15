@@ -102,4 +102,9 @@ I have no special talent. I am only passionately curious. - Albert Einstein
 
 "To begin is easy ,to persist is art" - German Proverbs
 
+It's not the load that breaks you down, it's the way you carry it.
+LENA HORNE
+
+Happiness is when what you think, what you say, and what you do are in harmony. - Mahatma Gandhi
+
 
